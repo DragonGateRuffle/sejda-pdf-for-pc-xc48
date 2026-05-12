@@ -1,4 +1,4 @@
-# 
+# Sejda PDF for PC | Sejda PDF for Windows custom Plugin: split-PDFs & compress-PDFs is the best Sejda PDF for PC | Sejda PDF for Windows plugin, featuring split-PDFs and
 
 
 
